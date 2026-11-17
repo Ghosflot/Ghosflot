@@ -1,4 +1,4 @@
-### Guillermo Peña García
+# Guillermo Peña García
 
 Co-founder of gelatina.lat. What works abroad takes years to reach Mexico. I don't wait for it.
 
